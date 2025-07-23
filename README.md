@@ -49,4 +49,26 @@ Where can the support team save time or improve service quality?
 <img width="1169" height="653" alt="image 1" src="https://github.com/user-attachments/assets/9d639f68-4fe0-4b4f-9f63-e62dba099123" />
 
 
+<img width="1169" height="653" alt="image 1" src="https://github.com/user-attachments/assets/600e1a65-2d36-4b0c-944f-e9ed8e93ef20" />
+
+
+
+<img width="1166" height="652" alt="image 3" src="https://github.com/user-attachments/assets/d74475d0-f48d-4eef-b474-c78c68037a98" />
+
+
+<img width="1163" height="653" alt="image 4" src="https://github.com/user-attachments/assets/88f6bd5d-70d7-4e34-b7b1-6f711baa69ce" />
+
+
+
+<img width="1169" height="657" alt="image 5" src="https://github.com/user-attachments/assets/e6d07b95-b4f4-40a4-9a07-b64af30078cb" />
+
+
+<img width="1161" height="651" alt="image 6" src="https://github.com/user-attachments/assets/150058bc-3e45-4b99-aca8-a9f02d13960c" />
+
+<img width="1164" height="653" alt="image 7" src="https://github.com/user-attachments/assets/7963a6cb-11d8-4d18-8366-84b853293448" />
+
+
+
+
+
 
