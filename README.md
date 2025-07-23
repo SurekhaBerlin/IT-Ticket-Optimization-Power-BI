@@ -43,3 +43,10 @@ Process Improvement
 Can we group similar tickets to create automated replies or help articles?
 Are the agent responses helpful and aligned with what the user asked?
 Where can the support team save time or improve service quality?
+
+
+
+<img width="1169" height="653" alt="image 1" src="https://github.com/user-attachments/assets/9d639f68-4fe0-4b4f-9f63-e62dba099123" />
+
+
+
